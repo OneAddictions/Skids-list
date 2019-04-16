@@ -38,7 +38,7 @@
 
 "ImDora" - Skidded anticheat.rip but changed his ways.
 
-"Funkemunky" - Used to skid janitor, and sloth, also manipulates to get his way.
+"Funkemunky" - Used to skid janitor, and sloth, also super ez to call out on his bs.
 
 SERVERS:
 "Rengo" - Skidded from bunch of anticheats to make there anticheat.
