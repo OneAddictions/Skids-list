@@ -34,7 +34,7 @@
 
 "Rowin" - read for your self https://gyazo.com/38a6d15a98771cee9b1ca59cd0f55a3a .
 
-"ImDora" - Skidded anticheat.rip but changed his ways.
+"ImDora" - Skidded anticheat.rip and manipulates.
 
 "Funkemunky" - Used to skid janitor, and sloth, also super ez to call out on his bs.
 
