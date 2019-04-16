@@ -38,6 +38,8 @@
 
 "Funkemunky" - Used to skid janitor, and sloth, also super ez to call out on his bs.
 
+"RealDev" - Trys to code but never closes GitHub.
+
 SERVERS:
 
 "Rengo" - Skidded from bunch of anticheats to make there anticheat.
