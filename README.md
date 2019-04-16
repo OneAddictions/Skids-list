@@ -8,8 +8,6 @@
 
 "Joel" - Skidded ragespigot of a server called ragemc.
 
-"Rainnnnnnnyy/LunarDev" - fat skid thinks he owns rights to ihcf he probs should commit sudoku.
-
 "Inspect" - fat skid resells broken code.
 
 "bruce" - I can only skid github.com/disclearing/amberpvp.
