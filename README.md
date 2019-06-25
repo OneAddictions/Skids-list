@@ -34,9 +34,11 @@
 
 "Rowin" - read for your self https://gyazo.com/38a6d15a98771cee9b1ca59cd0f55a3a .
 
-"ImDora" - Skidded anticheat.rip and manipulates.
+"ImDora" - Used to skid shit but is a g now.
 
-"Funkemunky" - Used to skid janitor, and sloth, also super ez to call out on his bs.
+"Funkemunky" - Bullshits a lot, makes an anticheat that is complete shit, skidded janitor.
+
+"CuzImYeti" - Steals practice/hcf cores and claims it as his own. (legit always needs help)
 
 "RealDev" - Trys to code but never closes GitHub.
 
