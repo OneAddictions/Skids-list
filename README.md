@@ -4,17 +4,11 @@
 
 "FigT" - Not much to say here over then he was never able to tell me what a string was l0l.
 
-"Zohondekids" - Can only "code" backdoors.
-
 "Joel" - Skidded ragespigot of a server called ragemc.
 
 "Inspect" - fat skid resells broken code.
 
 "bruce" - I can only skid github.com/disclearing/amberpvp.
-
-"DeclynXD" - Doxer swatter skidder all in one basically a wanna be gang member.
-
-"xo Baby Clew" - Mentally Retarded Skid That Calls Funkys Anticheat Exile His Own Custom Anticheat Kermit And Sucks BruceBoys 1 Inch Cock.
 
 "CzE" - Does not know datatypes thinks onNiggerJoin is a thing xdd.
 
@@ -32,20 +26,8 @@
 
 "UnknownMyName" - skids firefly/verus.
 
-"Rowin" - read for your self https://gyazo.com/38a6d15a98771cee9b1ca59cd0f55a3a .
-
-"ImDora" - Used to skid shit but is a g now.
-
 "Funkemunky" - Bullshits a lot, makes an anticheat that is complete shit, skidded janitor.
 
 "CuzImYeti" - Steals practice/hcf cores and claims it as his own. (legit always needs help)
 
 "RealDev" - Trys to code but never closes GitHub.
-
-SERVERS:
-
-"Rengo" - Skidded from bunch of anticheats to make there anticheat.
-
-"PvpTemple" - Uses MMC core & plugins.
-
-"ViperMC" - Renames Sloth.
