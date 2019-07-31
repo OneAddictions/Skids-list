@@ -4,7 +4,9 @@
 
 "CuzImYeti" - Steals practice/hcf cores and claims it as his own. (legit always needs help)
 
-"RealDev" - Trys to code but never closes GitHub.
+"RealDev" - Skids old verus and trys to claim as his code
+
+"Zibb" - Skids old verus l0l but is cool now.
 
 "WindowsEight" - Steals old verus source code and claims it as his, and always denys it and then go's after you for exsposing there dumbass (africa anticheat)
 
